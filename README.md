@@ -2,9 +2,9 @@
 
 - Version: 1005
 
-- Official release: https://f2pauto.com/threads/4/
+- Official release: https://f2pauto.com/threads/2
 
-![alt text](https://upanh.f2pauto.com/images/2017/08/09/10a415.jpg)
+![alt text](https://i.ytimg.com/vi/9L9zVGtt1fw/hqdefault.jpg)
 
 ## Totorial
 
